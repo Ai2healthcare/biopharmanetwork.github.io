@@ -39,7 +39,6 @@ CBCN每月将邀请一到两位工业界资深工作者就自己的工作进行�
 
 **Gold Sponsors!**
 
-[<img alt="" src="images/46684458.jpg" />](https://www.linkedin.com/groups/12692583/)
 
 **Silver Sponsors!**
 
